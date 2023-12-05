@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ret56 .
 - 👀 I’m interested in studying new things .
-- 🌱 I’m currently learning 
+- 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
 - .
